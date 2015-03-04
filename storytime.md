@@ -10,3 +10,9 @@ Bill Brickle    Jimmy James
 Fred Bradna   Count Nicholas
 Phil Chandler   Harold Ronk
 Chris Connors   Col. Harry Thomas Sr.
+
+Contact Info
+
+Treasure Island, 3300 S Las Vegas Blvd
+Las Vegas, NV
+(702) 894-7722
